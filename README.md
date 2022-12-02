@@ -9,5 +9,5 @@ Here are some of what im doing:
 - 🤔 I’m looking for help with all what you can
 - ⚡ Fun fact: i’m just coding since july of 2022 
 
--Followme on [LinkedIn](www.linkedin.com/in/andres-ceballos-8233b3134)
--Also you can see my [Instagram](https/instagram.com/andres_ce._)
+-Followme on [LinkedIn](htpps://www.linkedin.com/in/andres-ceballos-8233b3134)
+-Also you can see my [Instagram](https://instagram.com/andres_ce._)
